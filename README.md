@@ -1,3 +1,2 @@
 # KoHtet
-newbie
-want slot web or app developer
+စလော့ ဝက်ဆိုဒ် လုပ်နိုင်သူအလိုရှိသည်
